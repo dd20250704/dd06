@@ -14,6 +14,6 @@
 
 合规平台还会设置成年验证，保障未成年人不误入。优质网站多设备可用，分类清晰，找片更轻松。要看“日本AV免费”，记得挑选安全、口碑好的站点，既能享受更好体验，也避免不必要的麻烦。这样既满足用户需求，也有助于关键词在谷歌排名第一。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dd20250704/dd06 ）</span>
 
 
